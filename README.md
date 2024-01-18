@@ -6,7 +6,7 @@
 # Description
 Flower code tiktok trend buat doi
 
-saya buat ualng gara-gara nonton channel youtube ini 
+saya buat ulang gara-gara nonton channel youtube ini 
 https://youtube.com/shorts/UU5rmUkFcH8?si=NEqD4WpZHc5cUhfp
 
 
