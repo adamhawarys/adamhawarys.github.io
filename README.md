@@ -12,5 +12,5 @@ sumber semua codingan ini:
 - Flower Code : Md Usman Ansari (@MdUsmanAnsari)
 - Index Code : Septian Dwi Cahyo (@Septiandwica)
 
-Makasi ilmunya bang Septiandwwica, codepan, and mdusmanansari 
+Makasi ilmunya bang Septiandwica, codepan, and mdusmanansari 
 
